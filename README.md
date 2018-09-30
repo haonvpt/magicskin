@@ -1,5 +1,6 @@
 ## thông tin nhãn hiệu mỹ phẩm Magic skin
-[Logo mỹ phẩm Magic Skin](https://commons.wikimedia.org/wiki/File:Magic-skin-viet-nam-logo.jpg)
+- [Logo mỹ phẩm Magic Skin](https://commons.wikimedia.org/wiki/File:Magic-skin-viet-nam-logo.jpg)
+- [Mỹ phẩm Magic Skin Data](https://www.wikidata.org/wiki/Q56692115)
 
 [Mỹ phẩm Magic Skin](https://magicskin.asia/). Tính đến hiện nay, MagicSkin Việt Nam đã cung cấp ra thị trường hơn 25 dòng mỹ phẩm cao cấp khác nhau. Phục vụ cho nhu cầu làm đẹp của chị em phụ nữ. Các loại mỹ phẩm Magic Skin mà chúng tôi đang cung cấp phục vụ tất cả nhu cầu làm đẹp, vệ sinh cá nhân cho khách hàng nữ. 
 Các dòng mỹ phẩm Magic Skin hiện nay được sản xuất và phân phối độc quyền tại VIệt Nam bởi CÔNG TY TNHH TMDV MỸ PHẨM RUBY’S WORD. Bán lẻ tại MagicSkin.asia.
